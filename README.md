@@ -9,3 +9,8 @@ pre-heat the oven to 359 degrees celsius, and bake the egg tart shells for 20 mi
 
 Warning, never eat modding or rotten egg tart shells, it will damage your personal health and incur expensive medical cost!!!!
 remember medicines are more expensive than egg tart shells. 
+
+topping instruction:
+take the shells out of the oven, and put them on the counter top and cooling them for 1 hour or until all shells are cooled down. 
+Them add some whipped cream to the top of each egg tart, cut a few fresh strawberries and slice them into thin pieces. put 2 pieces of strawberry slices on top of the whipped cream top of the tarts, and make sure them stay there without falling. 
+then take a picture and share it over wechat with the rest of your bakery showing off group ;)
